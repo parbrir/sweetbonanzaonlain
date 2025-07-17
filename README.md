@@ -7,7 +7,7 @@ Sweet Bonanza онлайн уже более пяти лет удерживае�
 Лучшие казино для игры в Sweet Bonanza:
 
 1. **[ARKADA CASINO](https://clck.ru/3Mmm7v "ARKADA CASINO")** (🎁 Бонус 150% + 2000FS)
-2. **[R7 CASINO](https://clck.ru/3Mmm8s "R7 CASINO")** (🎁 Бонус 50% + 50FS)
+2. **[R7 CASINO](https://clck.ru/3NAHTh "R7 CASINO")** (🎁 Бонус 50% + 50FS)
 3. **[KENT CASINO](https://clck.ru/3Mmm9w "KENT CASINO")** (🎁 Бонус 125% + 100FS)
 4. **[KOMETA CASINO](https://clck.ru/3MmmAP "KOMETA CASINO")** (🎁 Бонус 255% + 500FS)
 5. **[CAT CASINO](https://clck.ru/3MmmAn "CAT CASINO")** (🎁 Бонус 75% + 50FS)
